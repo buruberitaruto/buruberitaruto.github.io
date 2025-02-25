@@ -1,0 +1,1 @@
+# buruberitaruto.github.io
